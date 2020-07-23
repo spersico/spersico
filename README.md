@@ -6,4 +6,4 @@ I like solving challenges and learning stuff 🤓. Take a look at my [LinkedIn](
 
 I'm currently working in Pulse360 and Teracloud while finishing college 👨‍🎓. 
 
-Want to talk? You can PM me at [@spersico](https://twitter.com/home).
+Want to talk? You can PM me at [@spersico](https://twitter.com/spersico).
